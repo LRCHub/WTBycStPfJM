@@ -1,0 +1,98 @@
+# HIMEHINA – LADY CRAZY
+
+> **歌詞登録ステータス：同期歌詞あり**
+
+```lrc
+[00:04.80] La..la..la..lady
+[00:08.05] Ca..crazy lady
+[00:15.05] 
+[00:15.69] Lady crazy lady, ah
+[00:18.57] Lady crazy lady, ah
+[00:21.92] Lady crazy lady, ah
+[00:25.29] Lady crazy shot!
+[00:27.09] (Che, che, cheese)
+[00:36.09] 
+[00:27.97] Dare ga kurutterutterutte?
+[00:29.72] Waga kurutterutterutte?
+[00:31.45] Nara sorya hora yonde ya
+[00:33.80] Lady crazy lady!
+[00:34.93] Ou-sama datte mou kurutte
+[00:36.56] Kemono no you ni mou kurutte
+[00:38.33] La..la..like this… (Aw! Aw! Aw!)
+[00:40.69] Baby, you are my king?
+[00:51.69] 
+[00:42.00] Iku to shi no death game ni norasareta ningen-sama
+[00:45.41] Inochi wa byoudou to iu surikomi wo kataru sonshi songao nya
+[00:48.96] Agametamae atama sagetamae (Haa!)
+[00:52.92] Toka iwarete juujun kurutterutte happy happy
+[00:55.69] O-e-o-e-o-a-ra-o-e-o
+[00:59.16] A-ra-o-e-o-a-u-a-e-re-o
+[01:02.53] Noushoku ni yudane yodare
+[01:05.65] Torokete rame rame na kao wo misete yo
+[01:09.37] (Che, che, cheese)
+[01:18.37] 
+[01:10.92] Lady crazy pop! Oh, lololololol
+[01:14.41] Lady crazy shot! Ai wo ageru
+[01:18.21] Kuruoshii hodo taburareta no ne
+[01:21.13] Baby, baby, (Aw!) Yume wo ageru
+[01:24.61] Lady crazy is bad! Azatoshi lover yo
+[01:28.04] Lady crazy shot! Kimi ni utsuru
+[01:31.73] Kyoujin be the one love! Kyoujin be the one love!
+[01:34.81] Karan koron ara hora mata anata ga fall down
+[01:39.65] (Ahhh… crazy…)
+[01:46.65] 
+[01:42.01] Dareka no egao kutte kutte
+[01:43.77] Shokuzai ni wa jamu wo nutte
+[01:45.54] Genjitsu kara nige toide to ai wo karame tojiru
+[01:48.89] Ichido no jinsei nara oishii no ga ii desho?
+[01:52.73] Tabete ageru
+[01:58.73] 
+[01:55.36] Aw!
+[01:55.93] Arawarete aburakadabura
+[01:59.87] Ide yo lady yo negai yo kanaete yo
+[02:02.56] Onozomi wa ware no dorei?
+[02:05.40] Nara hora agametamae utae utae
+[02:20.40] 
+[02:08.00] O-e-o-e-o-a-ra-o-e-o
+[02:12.37] A-ra-o-e-o-a-u-a-e-re-o
+[02:15.73] Noushoku ni yudane yodare
+[02:18.92] Torokete rame rame na kao wo misete yo
+[02:22.00] (Che, che, cheese)
+[02:31.00] 
+[02:24.58] I am the lady of crazy, I'm ready
+[02:26.60] Kyouhon doori machiwabita gisei shuugun-sama hodasareta kuchi no doa
+[02:30.09] Mou open shite koufun shite kokyuu sun no mo
+[02:32.76] Wasurechau kurai banbakka ban da!
+[02:34.52] Banzai da! Kono isshi no chuudokusei wa marude hanzai da!
+[02:37.61] Kyoukansha wa kyouhansha kyou wa yamena boukansha
+[02:41.70] Sakebi chirakase ya gasshou zankyou ran hansha
+[02:44.71] Kono hedateta nuno ichimai dake mekutte mekuru meku no paradiso
+[02:47.92] Marude sukaato no naka no hanazono
+[02:51.20] Mitakerya motto koe agete ikanakya na
+[03:09.70] 
+[02:53.93] (Ahhh)… back to the crazy!
+[02:55.28] Kapa kapa kapa kapa kapa kapa kapa
+[02:59.16] Paka paka paka paka paka paka paka
+[03:01.96] (La..la..lady, ca..ca..ca..crazy..l..)
+[03:07.71] (Shot!)
+[03:11.21] 
+[03:08.92] Lady crazy bokura no sei wa
+[03:12.24] Lady crazy itsuka wa owaru
+[03:15.68] Lady crazy naraba jiyuu wo kurau tame ni kuruu no
+[03:21.00] Lady crazy love oh
+[03:25.36] Lady crazy tengoku wo ageru
+[03:29.16] Kurutta ai de hohoende ite
+[03:34.36] (Che, che, cheese)
+[03:43.36] 
+[03:35.68] Lady crazy pop! Oh, lololololol
+[03:39.04] Lady crazy shot! Ai wo ageru
+[03:42.72] Kuruoshii hodo taburareta no ne
+[03:45.67] Baby, baby, (Aw!) Yume wo ageru
+[03:49.14] Lady crazy virtual de ii no ne
+[03:52.70] Lady crazy virus na kisu de
+[03:56.38] Kyoujin be the one love! Kyoujin be the one love!
+[03:59.47] Karan koron ara watashi mo anata ni fall down
+[04:21.97] 
+[04:06.59] Lady crazy lady, ah
+[04:13.38] Lady crazy lady lady shot!
+```
